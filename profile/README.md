@@ -1,3 +1,7 @@
+davidelmagoprieto@gmail.com
+null
+confirm_now
+Gracias
 David Prieto G. ## Hi there 👋
 
 <!--
